@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @SohyunKimmm
-- 👀 I’m interested in everything!
+- 👀 I’m interested in Brand Marketing. 
 - 🌱 I’m currently learning Big Data Marketing Analysis. 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ... via E-mail: shooop24@daum.net
